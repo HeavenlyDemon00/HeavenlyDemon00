@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @HeavenlyDemon00
+- 👀 I’m interested in gaming and music
+- 🌱 I’m currently learning IT in uni
+- 💞️ I’m looking to collaborate on N/A
+- 📫 How to reach me: DMs on Discord
